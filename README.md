@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there 👋 qasam sey sir bohot try kiya hai magar github pay upload he nahi ho rahi. normal notepad in my desktop toh chal rahi hain mazay say. magar github thori thori masti kar raha hai. sir may business analytics ki new student enrolled last week houn. merey pay please reham karain for this one assignment. ajj tahajjud may bhi isi kay lieye dua karoungi. ;(
 
 <!--
 **aishaTabassum39134/AishaTabassum39134** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
